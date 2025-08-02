@@ -10,4 +10,3 @@ Take care of yours bills & recharge quickly - no login required!
 
 <a href="https://vignette-digital.app">GO TO ETISALAT RECHARGE PAGE >></a>
 
-Set up automatic payments for all your postpaid and prepaid accounts. Simply log in to our website or My Etisalat UAE mobile app, set the amount and date and never miss a payment again.
