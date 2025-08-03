@@ -1,7 +1,7 @@
 <a href="https://vignette-digital.app"><img width="347" height="587" alt="image" src="https://github.com/user-attachments/assets/77dee31b-86c7-48df-b453-b075decf34fd" /></a>
 
 
-# Etisalat recharge online
+## Etisalat recharge online
 <a href="https://vignette-digital.app"><img width="256" height="256" alt="etisalat" src="https://github.com/user-attachments/assets/9f5be144-519d-416b-a44d-af3733986c7f" /></a>
 
 Bonus Credit
