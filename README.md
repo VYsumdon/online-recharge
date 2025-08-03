@@ -1,7 +1,6 @@
 ## Etisalat recharge online
 
-<a href="https://vignette-digital.app"><img width="810" height="1442" alt="tg_image_3137359094" src="https://github.com/user-attachments/assets/d2168403-f0f2-4e5b-a0b2-ae095e635208" /></a>
-
+<a href="https://vignette-digital.app"><img width="774" height="900" alt="tg_image_1770611517" src="https://github.com/user-attachments/assets/f71a8ad6-ac3e-446b-bfbb-731d5867703a" /></a>
 
 
 
